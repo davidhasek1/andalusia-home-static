@@ -1,1 +1,0 @@
-# andalusia-home-static
